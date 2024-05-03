@@ -1,6 +1,6 @@
 <header class="post-header">
   <a class="site-title" href="{{ "/" | relative_url }}">{{ "Blake's Journal" | escape }}</a>
-  <h1 class="post-title baseline-fix" itemprop="name headline">{{ "Blake's Journal" | escape | replace: "Kagami​", "Pages" }}</h1>
+  <h1 class="post-title baseline-fix" itemprop="name headline">{{ page.title | replace: "Kagami​", "Pages" }}</h1>
 </header>
 
 {% if page.cover_url %}
