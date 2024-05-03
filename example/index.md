@@ -1,4 +1,4 @@
 ---
+title: Chronological
 layout: home
-title: Chronological Records
 ---
