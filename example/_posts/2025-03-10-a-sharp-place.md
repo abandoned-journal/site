@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Light of Dagatar
+title: A Sharp Place
 description: A series of explanations and events
 ---
 
