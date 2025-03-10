@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Panacea
+title: Light of Dagatar
 description: A series of explanations and events
 ---
 
