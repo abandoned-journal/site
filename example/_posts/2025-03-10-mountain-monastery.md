@@ -12,7 +12,7 @@ The cold is biting, but we were well prepared and have found good shelter for th
 
 It's proven to be an interesting location. Deeply religious place, and with roots in what we believe to be both the people of red light and blue light. Like the first hold we found, this place shows ancestry of orcish origin, and nearly all text within was written in an old style of orc
 
-My orc is passable, though I’m much better with written than spoken. It was the second language I ever learned. When I had first left my world, I ran into a group of orcs patrolling the highlands where I had landed (the little coastal town of Minnow, which I highly recommend visiting for any who find it). They were kind enough to not kill me on sight, and to excuse my poor Common and worse understanding of how things worked in their world.
+My orc is passable, though I'm much better with written than spoken. It was the second language I ever learned. When I had first left my world, I ran into a group of orcs patrolling the highlands where I had landed (the little coastal town of Minnow, which I highly recommend visiting for any who find it). They were kind enough to not kill me on sight, and to excuse my poor Common and worse understanding of how things worked in their world.
 
 In hindsight, I was treated like a laughingstock most of the time I lived in that city. I hardly noticed it at the time though. I was grateful for the kindness of the townspeople, as they invited in a stranger with no gold to his name and no understanding of the world around him. I was ill the first several days I had arrived, acclimating to new biomes and diseases, and they helped me through it all.
 
@@ -26,4 +26,4 @@ We put together old maps, death records (confirming the existence and violence o
 
 The monastery's religion also became known to us, while we studied an old child's folktale. Two sister gods, one stoic and one adventurous, are the main figures. The younger brother of the sisters had two familiars, with whom he plotted. It's a story of deceit and betrayl, and betraying the betrayer. An interesting orcish legend.
 
-Thankfully, the gods of this monastery seem to take no mind in us staying here. We'll see if the night has anything in store for us, but otherwise… it's nice to write and sleep somewhere warm.
+Thankfully, the gods of this monastery seem to take no mind in us staying here. We'll see if the night has anything in store for us, but otherwise it's nice to write and sleep somewhere warm.

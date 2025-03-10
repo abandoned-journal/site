@@ -12,7 +12,7 @@ The bad news: it turned out to be a singular, very angry ape.
 
 Gremm and Luisa were able to hold the creature's attention while Noggin and I set a trap for it, and thankfully we were able to scare it off without needing to kill it. It seemed to be scavenging for gold around the monastery, and wasn't inclined to stick around after a little dissuasion.
 
-The creature itself didn't seem particularly harmful, though we also didn't give it much leeway to cause is harm. Oddly enough, it seemed to understand magic to some degree, or at least enough to understand how to not be fooled by it. In truth, however, I believe the only danger you may wish to look out for in the Yetis is the gas that emanates off of them once they've been hurt. It was able to corrode the golden trimmings above the doorframe, and anything that can corrode gold is… not a substance I can ever advise having near the skin.
+The creature itself didn't seem particularly harmful, though we also didn't give it much leeway to cause is harm. Oddly enough, it seemed to understand magic to some degree, or at least enough to understand how to not be fooled by it. In truth, however, I believe the only danger you may wish to look out for in the Yetis is the gas that emanates off of them once they've been hurt. It was able to corrode the golden trimmings above the doorframe, and anything that can corrode gold is not a substance I can ever advise having near the skin.
 
 Thankfully, we had no other exciting encounters beyond that. The rest of the journey down the mountain went smoothly.
 
