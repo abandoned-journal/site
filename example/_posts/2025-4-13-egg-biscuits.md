@@ -29,6 +29,7 @@ The only other thing I wished to record of the evening was of two other afflicti
 Light Venge was a new one though. It came about when discussing Grem's light (which was not Blue, and an object of interest to the guards because of that), and presumably refers to some affliction a god can cause against one bearing their light who rebels against them. It seems to be uncommon but not unheard of to do so. I'm not sure why someone does this, or what it all entails, but it seems to carry some amount of risk. The guards seemed to imply there's a way to manually change one's light to blue, but I'm unconvinced that it does not involve killing or severely maiming the host in some way.
 
 I think that's all I feel safe enough to record for now. With luck, we leave the city soon, and my records can be cleaner. I'm pleased with our risk and reward for today, but hope we can get back on the road soon. This place unveils new horrors at every turn.
+.
 
 
 
@@ -37,6 +38,5 @@ I think that's all I feel safe enough to record for now. With luck, we leave the
 
 
 
-
-
+.
 (Speaking of new horrors, I lied. I also wish to have it on record that Noggin revealed to us a purchase of his from Whizzlebob's: a box holding a very finite set of paperclips. He suggested illusioning us into paperclips, then removing some from the box and seeing if the box would pull us across security. When we questioned the sanity of such a thing, he proceeded to test it out on a cleaning robot, which promptly was killed and compressed into a paperclip shape. I've never seen something more horrific in my life)
