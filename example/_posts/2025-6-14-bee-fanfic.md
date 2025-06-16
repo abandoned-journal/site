@@ -5,12 +5,12 @@ description: A series of explanations and events
 ---
 
 The following excerpt is written in Draconic in barely legible cursive with the occasional egg biscuit crumbs on the pages. The paper is crumpled with the faint smell of deer meat from
-being stashed in Luiza’s bag. The title is smeared with deer blood, but you can make out the
-word “Truth” in it.
+being stashed in Luizaâ€™s bag. The title is smeared with deer blood, but you can make out the
+word â€œTruthâ€ in it.
 
 --------------------------------------------------
 
-“Go to the center-most tower and present your orders. Dagataar will be waiting for you.”
+â€œGo to the center-most tower and present your orders. Dagataar will be waiting for you.â€
 
 Douglass mentally repeated the words of the orders to himself over and over again, unable to
 process. The orders felt lighter than they should be in his palms, becoming slick with his
@@ -20,7 +20,7 @@ sheer presence were pushing him back. Why him? Why now? Surely there were more w
 followers to bathe in the presence of God.
 
 Average in most aspects of his life, before being brought to Phaneron Douglass worked for
-his father’s contractor business. Lacking the finesse or knowledge of the other workers, he
+his fatherâ€™s contractor business. Lacking the finesse or knowledge of the other workers, he
 prioritized hauling the lumber and other materials around while his father and the other
 employees focused on the actual construction work. It paid little but it gave Douglass
 something to do. The efficient Dagataarian society pinpointed where his skills lied as they do
@@ -39,7 +39,7 @@ more competent to handle whatever task Dagataar expected out of him.
 
 In this particular case, the orders had him carrying a large spider-esque mass of what he
 could only describe as steel and glass cables. He had no idea what it did other than the fact it
-had the label “OM-?” on it followed by a schematic Douglass was not trained to read; it didn’t
+had the label â€œOM-?â€ on it followed by a schematic Douglass was not trained to read; it didnâ€™t
 take a genius to assume the OM stood for Ocean Machine. Why were those within Bastille
 Agalloch if they were machines meant for the ocean anyways? But he was not given orders to
 think, he was ordered to haul. And haul he did, using his bare hands as the thick calluses
@@ -53,13 +53,13 @@ him, but he felt nothing. Numbness seeped into his core, and he only began to fe
 when the cold metal of the orders were placed back into his hand, a faint vibration from the
 bee inside stirring his senses.
 
-“I...get to meet Datagaar?” he finally sputtered out. “But, why?”
-Jonas shrugged. “Who knows? We ain’t gods. You got it good!” he slapped him on the back.
+â€œI...get to meet Datagaar?â€ he finally sputtered out. â€œBut, why?â€
+Jonas shrugged. â€œWho knows? We ainâ€™t gods. You got it good!â€ he slapped him on the back.
 
-“But it doesn’t make sense-”
+â€œBut it doesnâ€™t make sense-â€
 
-“It ain’t our jobs to know why, but do,” Jonas said firmly, chewing on a sausage biscuit. “You
-know that well. May Dagataar’s light shine upon you.”
+â€œIt ainâ€™t our jobs to know why, but do,â€ Jonas said firmly, chewing on a sausage biscuit. â€œYou
+know that well. May Dagataarâ€™s light shine upon you.â€
 
 Douglass had no argument with that. Surely his lack of knowledge would be something they
 kept in mind, and his questioning may even put the job at risk. He nodded and attempted to
@@ -69,8 +69,8 @@ deep into his core.
 Finally, the entrance came into view for the Seat of Stability, the same building he brought the
 OM part earlier to. Why did they have me receive my next orders all the way from the dock if
 they wanted me to return here?, Douglass suddenly thought, the absurdity of it hitting him
-before he pushed it away. Do not think, it’s not your job. Dagataar is a god, who knows what
-goes on in a deity’s head.
+before he pushed it away. Do not think, itâ€™s not your job. Dagataar is a god, who knows what
+goes on in a deityâ€™s head.
 
 As he walked though the main entrance, Douglass was greeted by rows and rows of
 employees in teller boxes. Seeing their attire made him feel immediately out of place with his
@@ -95,41 +95,41 @@ that Douglass had no clue the use of. In the center of the room was a brightly l
 almost white. curtain. Douglass could barely make the outline out of a hovering object. He
 waited, but nothing happened.
 
-Eventually he spoke out, breaking the silence. “My name’s Douglass. Your grace?”
+Eventually he spoke out, breaking the silence. â€œMy nameâ€™s Douglass. Your grace?â€
 As he took a step forward, the shape shot forward, pressure against the edge of the curtain.
 
-“You,” it said.
+â€œYou,â€ it said.
 
 Douglass stopped in his tracks, his second step hovering inches above the floor. He quickly
 brought it back in line with his back foot, and waited. The object retreated from the curtain and
 silence returned to the space.
 
-After a few minutes, Douglass cleared his throat. “Uhm, are you my god Dagataar? Your,
-highness?” he tried again. “I came at your summons. May Dagata-, uhh, your light shine upon
-you?”
+After a few minutes, Douglass cleared his throat. â€œUhm, are you my god Dagataar? Your,
+highness?â€ he tried again. â€œI came at your summons. May Dagata-, uhh, your light shine upon
+you?â€
 
 Quiet permeated the space as the echoes of his questions bounced along the walls. Sweat
 trailed down his forehead and the drops joined at his chin before falling to the floor. This
-perpetual state of unknown drowned him. He could not step forward or risk his god’s, or what
-he assumed to be his god’s, wrath. He could not leave, for his orders were clear; the elevator
+perpetual state of unknown drowned him. He could not step forward or risk his godâ€™s, or what
+he assumed to be his godâ€™s, wrath. He could not leave, for his orders were clear; the elevator
 doors would likely not open without completing whatever his task may be. His stasis was set
 in stone.
 
 That was when Douglass noticed it. Forced with the inability to move, he instead observed.
 And he observed peculiarities. For one, the shape of the being that he assumed to be
-Dagatar was… shifting. Vibrating. As if it weren’t solid, but gaseous in nature behind the
+Dagatar wasâ€¦ shifting. Vibrating. As if it werenâ€™t solid, but gaseous in nature behind the
 curtain. He also could hear tell-tale signs of exertion. Grunting, gasps, quiet but given the lack
 of background noise he could catch them. He also noticed that the object was ever so slightly
 growing in size over time.
 
-Patience at his limit, Douglass decided to move forward once more. “Sir Dagataar, I am going
-to walk up now, is that alright?” Taking the silence as a yes, Douglass tentatively took a step
-forward. No response. He released a breath he didn’t realize he was holding, and continued
+Patience at his limit, Douglass decided to move forward once more. â€œSir Dagataar, I am going
+to walk up now, is that alright?â€ Taking the silence as a yes, Douglass tentatively took a step
+forward. No response. He released a breath he didnâ€™t realize he was holding, and continued
 onward. This time, there was no response, no shout from Dagataar scolding or applauding his
 actions, just heavy breathing and the occasional groan.
 
 Douglass reached the translucent drapes and hesitated once more. Who was he to breach
-the barrier of his own accord? His job wasn’t to think, it was to move, carry, haul, follow
+the barrier of his own accord? His job wasnâ€™t to think, it was to move, carry, haul, follow
 orders. He was once again overcome with the sense of being an imposter on holy ground. But
 in absence of instruction he felt he had little choice. In an unfortunate case of free will he
 pulled at the curtain, and they floated down with little resistance.
@@ -137,7 +137,7 @@ pulled at the curtain, and they floated down with little resistance.
 On the other side was the floating object that was previously obscured. An octagon, then a
 decagon, followed by a pyramid. The shape was changing rapidly, never ceasing in its quest
 to mimic all possible geometric forms. It vibrated slightly, particles crumbling off then falling
-back into line whenever a new shape was formed. It looked almost identical to Dagataar’s
+back into line whenever a new shape was formed. It looked almost identical to Dagataarâ€™s
 picture on the public org chart. On closer inspection, the mass was not solid at all, but a
 swarm. Hundreds, perhaps even thousands of tiny mechanical insects all circling in hypnotic
 patterns, following a rhythm not audible to anyone else. A more discerning eye would
@@ -153,30 +153,30 @@ abdomen, giving an insect-like appearance connecting the plump sections with cle
 separations. Each section throbbed rhythmically to its heartbeat, pale blue light shining
 through the thin skin. Dozens of moist limbs slapped the marble floor as the form writhed in
 discomfort. Moaning could be heard, yet there was no mouth on what Douglass assumed was
-the creature’s head. Or eyes, or any face for that matter, just smooth pale skin broken up by
+the creatureâ€™s head. Or eyes, or any face for that matter, just smooth pale skin broken up by
 four separate gaping holes. Nothing could be seen within these holes, just the pitch black
-void. Lower still was where Douglass’ gaze was transfixed; below the abdomen and between
+void. Lower still was where Douglassâ€™ gaze was transfixed; below the abdomen and between
 the writing of legs was a pulsing orifice, regularly secreting fluids along with new insect
 creations which immediately flew up to join the swarm. The sheer regularity gave off the
 appearance that a string of mechanical creatures connected from the sphincter to the above
 cloud. Another cry from the flesh form, another few bees popped out, more amniotic fluid
 pooled onto the floor.
 
-“Your fear did not prevent you from coming forward,” the voice said once more, startling
-Douglass. “Good.” Douglass could tell it was originating from the figure below, as the holes on
+â€œYour fear did not prevent you from coming forward,â€ the voice said once more, startling
+Douglass. â€œGood.â€ Douglass could tell it was originating from the figure below, as the holes on
 its face would take turns moving for each word, inhaling and exhaling.
 
 Douglass stared up at the shape that resembled Dagataar for a moment, two, hoping for it to
-speak. Then, reluctantly, he looked back to the floor. “I’m here for my orders,” Douglass finally
+speak. Then, reluctantly, he looked back to the floor. â€œIâ€™m here for my orders,â€ Douglass finally
 managed, keeping his face as neutral as possible.
 
 The abomination Douglass assumed to be Dagataar seized in what Douglass was eventually
-able to interpret as laughter. “Orders, of course,” it managed between heavy breaths, “that is
-what drives us all now, after all.”
+able to interpret as laughter. â€œOrders, of course,â€ it managed between heavy breaths, â€œthat is
+what drives us all now, after all.â€
 
-“My orders?” Douglass asked again. He could feel his toes within his shoes clenching.
+â€œMy orders?â€ Douglass asked again. He could feel his toes within his shoes clenching.
 
-“Eager to leave? No, we will delay your orders. Let us discuss for a moment.” Dagataar
+â€œEager to leave? No, we will delay your orders. Let us discuss for a moment.â€ Dagataar
 motioned with one of its many limbs to a single rusted metal stool beside it.
 
 Douglass walked over slowly, clenching his fists in an attempt to prevent shaking. He wiped
@@ -184,103 +184,103 @@ away projectile fluid droplets off the seat with his shoe as best as he could be
 down. His mind whirled in far too many directions for Douglass to consolidate the thought
 threads into a reasonable coherent plan, but one thing was for certain: this was not what he
 expected to see when meeting his deity. He wondered if he walked into the wrong room, then
-exiled that thought as heresy. This must be how gods are and I’m too dense to understand it,
+exiled that thought as heresy. This must be how gods are and Iâ€™m too dense to understand it,
 
 Douglass tried to convince himself, unsuccessfully.
 
-“You doubt my identity.” It was not a question.
+â€œYou doubt my identity.â€ It was not a question.
 
-“I… I’d never… ”
+â€œIâ€¦ Iâ€™d neverâ€¦ â€
 
-“No need. This, too, is good. It is proof you will be up for the task. For I am not Dagataar.”
-The relief that shot through Douglass’ veins was borderline euphoric. “Oh, then this is a
-mistake,” Douglass said quickly, starting to rise, “I see above you that Dagataar-”
+â€œNo need. This, too, is good. It is proof you will be up for the task. For I am not Dagataar.â€
+The relief that shot through Douglassâ€™ veins was borderline euphoric. â€œOh, then this is a
+mistake,â€ Douglass said quickly, starting to rise, â€œI see above you that Dagataar-â€
 
-“Sit,” the thing commanded, and Douglass found himself back in his chair. It groaned, pushing
+â€œSit,â€ the thing commanded, and Douglass found himself back in his chair. It groaned, pushing
 out five or six more bees, then panted, catching its breath. It took a moment before
-continuing. “Tell me, what do you expect out of a god of order?”
+continuing. â€œTell me, what do you expect out of a god of order?â€
 
-“I don’t know, I don’t think about things like that.”
+â€œI donâ€™t know, I donâ€™t think about things like that.â€
 
-“Come now, there will be no punishment for your words. This is a simple friendly
-conversation.”
+â€œCome now, there will be no punishment for your words. This is a simple friendly
+conversation.â€
 
 Douglass doubted its words, and knew he was in too deep. He was once again paralyzed
 between knowing this moment would not pass without his action, yet also knowing his actions
 would be under heavy scrutiny.
 
-“Fool. I will answer for you then, the answer is perfection. A god is expected to be perfect.”
+â€œFool. I will answer for you then, the answer is perfection. A god is expected to be perfect.â€
 
-“Oh, yeah, you’re right, it’s perfection.”
+â€œOh, yeah, youâ€™re right, itâ€™s perfection.â€
 
-“Silence, you have contributed nothing so listen instead. Humanity expects perfection if it
+â€œSilence, you have contributed nothing so listen instead. Humanity expects perfection if it
 should toil under a deity, so you must give it perfection. And what is more perfect than
-euclidean geometry?”
+euclidean geometry?â€
 
 The, now triangular prism, floated forward, directly in front of Douglass. It was close enough
 for him to single out individual bees, their eyes, and the awareness they were all staring at
-him. The group was a single being, all directed at his presence. “So then Dagataar is…”
+him. The group was a single being, all directed at his presence. â€œSo then Dagataar isâ€¦â€
 
-“The shape you see before you is what most individuals fortunate enough to earn a visit to the
+â€œThe shape you see before you is what most individuals fortunate enough to earn a visit to the
 god know as Dagataar. His form is ever-shifting, and parts of himself are in every order made
-to ensure he keeps watchful eyes over all and that order continues. It truly is perfection.” The
-creature’s head, or what Douglass assumed was his head, leaned toward the swarm. “It is
-truly a shame that it is not reality.”
+to ensure he keeps watchful eyes over all and that order continues. It truly is perfection.â€ The
+creatureâ€™s head, or what Douglass assumed was his head, leaned toward the swarm. â€œIt is
+truly a shame that it is not reality.â€
 
 The flesh pressed four of its hands into the side of its abdomen, and after doing so the blue
 light within its abdomen dissipated. The floating shape immediately collapsed, bees frozen
-mid-flight dropped to the ground like rain. The new bees birthed from the creature’s womb lay
+mid-flight dropped to the ground like rain. The new bees birthed from the creatureâ€™s womb lay
 still in the amniotic fluid pool. Douglass stared at the bees as the fluid started to cover them
 entirely.
 
-“The insects have no will of their own,” it explained. “While they are made at least partially of
+â€œThe insects have no will of their own,â€ it explained. â€œWhile they are made at least partially of
 flesh, their minds work more that of a machine. Without orders, like everyone else under the
-blue light, they cease to know what to do. Quite like you sitting there twiddling your thumbs.”
+blue light, they cease to know what to do. Quite like you sitting there twiddling your thumbs.â€
 The vaguely humanoid creature smacked a few of the bees around, demonstrating their
 inability to respond.
 
-“Dagataar takes orders?” Douglass asked incredulously, the absurdity of the situation
-snapping him out of his fear. “I don’t see any miniature orders being handed to each individual
-bee.”
+â€œDagataar takes orders?â€ Douglass asked incredulously, the absurdity of the situation
+snapping him out of his fear. â€œI donâ€™t see any miniature orders being handed to each individual
+bee.â€
 
-It winced in pain, nodding. “We all do. Like I said, these insects work more like machines.
+It winced in pain, nodding. â€œWe all do. Like I said, these insects work more like machines.
 They can receive their orders directly through blue light itself. I am actively blocking my own
-receiver to show this display.” The creature gasped and his hands left his side, and the blue
+receiver to show this display.â€ The creature gasped and his hands left his side, and the blue
 light returned to his abdomen. The bees shot back up into the air, albeit more drenched than
 before.
 
-“So then you order the bees. Then that makes you Dagataar?”
+â€œSo then you order the bees. Then that makes you Dagataar?â€
 
-“The bees take orders through me, but I take orders from others.”
+â€œThe bees take orders through me, but I take orders from others.â€
 
-“Who orders you then?”
+â€œWho orders you then?â€
 
 The flesh made a motion that Douglass interpreted as a shrug, or maybe just more responses
-to the obvious pain it was in. It was difficult to tell. “Various citizens in the towers, following
+to the obvious pain it was in. It was difficult to tell. â€œVarious citizens in the towers, following
 orders to write those orders by orders made by other citizens. This Dagataar exists because
-he needs to in order for hierarchy to be maintained.”
+he needs to in order for hierarchy to be maintained.â€
 
-“But then who calls the shots?” Douglass stood up again. “Who do I need to report to for my
-orders to be complete? Can anyone tell me who I report to so I can finish my damn orders?”
+â€œBut then who calls the shots?â€ Douglass stood up again. â€œWho do I need to report to for my
+orders to be complete? Can anyone tell me who I report to so I can finish my damn orders?â€
 
-“Do you not understand it already? There is no final say. The system perpetuates itself. Sure,
-at one point an individual or two set this all up and they are likely the “true” Dagataar. They
+â€œDo you not understand it already? There is no final say. The system perpetuates itself. Sure,
+at one point an individual or two set this all up and they are likely the â€œtrueâ€ Dagataar. They
 have all but faded into intentional obscurity, likely enjoying life in a private home somewhere
 on Phaneron waiting for their faction to succeed. They let their system fully take control. I am
-but a false god.”
+but a false god.â€
 
-“Okay, so I will report to you. Good enough. I don’t know what to do with all of that, I’m just a
-laborer. Why tell me all of this instead of just giving me my orders?”
+â€œOkay, so I will report to you. Good enough. I donâ€™t know what to do with all of that, Iâ€™m just a
+laborer. Why tell me all of this instead of just giving me my orders?â€
 A rumbling came from the creature, followed by bile spewing out of the four orifices on its
-head. Once they cleared, it spoke once more. “It was necessary so you could understand
-your orders properly. My position is… taxing on the body. And you know how short of
+head. Once they cleared, it spoke once more. â€œIt was necessary so you could understand
+your orders properly. My position isâ€¦ taxing on the body. And you know how short of
 lifespans natural bees have; these mechanical ones are hardly an improvement. To put
 simply, I am looking for my replacement. I have heard you are quite the healthy and strong
 individual. With few familial or influential ties too. How fortunate you can contribute to
-Dagataar’s light in such a personal way.”
+Dagataarâ€™s light in such a personal way.â€
 
-Douglass stepped back. “No, I don’t, I will not do that”
+Douglass stepped back. â€œNo, I donâ€™t, I will not do thatâ€
 
-“You fool, as if we ever have a choice?”
+â€œYou fool, as if we ever have a choice?â€
 
 Douglass ran to the door and pulled. The entrance locked shut.

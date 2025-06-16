@@ -219,7 +219,8 @@ article {
 }
 
 .post-luisa {
-   font-family: "hand";
+   font-variant-caps: all-petite-caps;
+  color: lighten($content-color, 20%);
 }
 
 .post-item-meta {
