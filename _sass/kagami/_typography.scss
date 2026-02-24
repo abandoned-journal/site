@@ -225,13 +225,13 @@ font-family: "hand";
 }
 
 .post-grem {
-  font-family: "grem";
-  color: #6d577a
+  font-family: "Press Start 2P", cursive;
+  color: #6d577a;
 }
 
 .post-item-meta {
   font-variant-caps: all-petite-caps;
-  color: #fff;
+  color: lighten($content-color, 40%);
 }
 
 .post-list-item .post-item-cover {
