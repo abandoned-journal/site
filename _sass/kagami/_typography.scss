@@ -224,9 +224,14 @@ font-family: "hand";
   color: lighten($content-color, 20%);
 }
 
+.post-grem {
+  font-family: "grem";
+  color: #6d577a
+}
+
 .post-item-meta {
   font-variant-caps: all-petite-caps;
-  color: lighten($content-color, 40%);
+  color: #fff;
 }
 
 .post-list-item .post-item-cover {
