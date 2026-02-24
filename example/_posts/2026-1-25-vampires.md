@@ -40,9 +40,15 @@ Regardless to say I don't use the spell often, nor do I use an eyeball. The cruc
 
 But it works against vampires! I'm happy to have figured that much out. I don't worship Tazaam's but I do keep the sigil on me at all times anyways. It seems to help me out a bit, carrying the red light I've got currently, and if it repels vampires then I'll be sure to make good use of that while I can.
 
-I may burn an offering to the ever-watching Gruumsh as well. I don't sleep either now, so maybe my gifts really are from Tonoway's gods. I think I'd like that better than Tazaam, at any rate.
+In any case, divine power seems to repel the vampires. The one that was attacking Noggin insisted it'd remember its faces, before it ran off. We ran out towards the lake to regroup with Noggin, but haven't seen any sign of Grem. Whatever happened to her, Noggin doesn't seem to know about it.
 
-In any case, divine power seems to repel the vampires. The one that was attacking Noggin insisted it'd remember its faces, before it ran off. We ran out to the lake to regroup with Noggin, but haven't seen any sign of Grem.
+Noggin, apparently, was off on his own investigating matters. He'd found a room filled with reports, and a pair of legs missing their upper-body. The owner of said legs was the vampire we'd encountered, who sniffed him out and cornered him before we had arrived.
+
+He got a good bite in on Noggin, far deeper than I would have expected the fangs to go. The wound has a slight corkscrew, and went pretty deep into the neck. It looked clean, and I'm not too concerned about any symptoms from it (magical or otherwise), but Noggin is definately missing a lot of blood.
+
+We put some distance between ourselves and the city, but it doesn't feel very safe out here. We're staying in Noggin's tiny hut tonight to try to reduce our presence. Luisa was helping me train far into the night, and has only now retired so she can get a little rest in before morning.
+
+I don't intend to rely on divine power if a vampire shows up between now and when we start in the morning. But, I may burn an offering to the ever-watching Gruumsh whenever we get a chance to light a fire. I don't sleep, so maybe my gifts really are from Tonoway's gods. I think I'd like that better than Tazaam, at any rate.
 
 Kharg-hark!
 Thank lat gruumish tor your auga's sight against ul gijak tooth armauk
