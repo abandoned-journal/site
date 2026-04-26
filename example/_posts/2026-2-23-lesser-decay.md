@@ -1,7 +1,7 @@
 ---
 layout: post
 title: The Lesser Decay
-description: A series of explanations and events
+description: The party makes a vampiric friend and stops a mining operation
 ---
 
 When we woke in the morning, we agreed to head towards the Lesser Decay and take our chances with whatever strange lake was over there. Our goal was to reach the capital city and see what we could find out about Grem's whereabouts.
