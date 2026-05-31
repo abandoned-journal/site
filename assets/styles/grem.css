@@ -1,6 +1,7 @@
+@import url(https://fonts.googleapis.com/css?family='Mea Culpa':400,100,900);
+
 @font-face {
-	font-family: 'grem';
-	src: url('../font/MeaCulpa-Regular.ttf') format('truetype');
+  font-family: 'Mea Culpa', serif;
   font-weight: normal;
   font-style: normal;
 }
