@@ -53,3 +53,25 @@ In any case, we spent the rest of the day retrieving Jimmy and Jasper, and headi
 The fumes at the swamp were much, much stronger than in the city, and the pollution of the swamp was so thick that Bingus could practically walk across the water. We made it a decent ways into the crossing but Grem succumbed to the toxic gasses, and a large corpse-like fish nearly gobbled her up. Thankfully, a good fireball from Noggin remedied the situation (and set half the swamp on fire).
 
 We rushed to the other side of the swamp and tore our way to freedom. Just past the swamp we landed in clean waters, where we were picked up by a boat passing by.
+
+We were welcomed aboard a Yellow vessel manned by Captain Ingvay, who was a jovial and overall pleasant fellow. He fished us out of the water, but asked us to repair the pollution mesh that we had destroyed in our escape from the monster fish. We got to work and had it done in a relatively short amount of time.
+
+Upon returning to the ship, however, we found two more of the vampires had arrived and settled into the ship. Ingvay had called them in after seeing Grem, thinking her to be a lost person. Grem attempted to disguise herself from the vampires, but they saw through the lies and begged her to return to them to perform. Grem adamantly refused, however, and Ingvay ended up shooing the vampires off of his boat. He claimed that he wanted no reward in turning Grem in, and insisted that if she did not wish to return with the vampires, he would by no means force her to return with them.
+
+And the vampires, for their part in things, took things rather gracefully as well. They left a bit confounded, and dissapointed, but without a struggle.
+
+Ingvay took us to shore and dropped us off with his good word, pointing us in the direction of a shipyard captain we could call on for a boat. 
+
+We spent a bit of time in the city, since it was a rather nice place. It seems the only real thing the yellow faction wishes to do is work an honest day's work, and they're very respectful of you so long as you keep yourself busy. I ended up spending some time at the clinic near the dock, and I believe the others set about to help out where they could best contribute. Luisa raised some concerns about the food in the city, but we found it to be both delicious and plentiful. They even have cigarettes!
+
+After we had a good meal, we stopped by the ship lady to ask for a boat to travel to Melina. She was less than enthused by our reasons, but... with a few parlor tricks, we convinced her to sponsor our trip. It was a bit of a sticky situation hashing all that out, I certainly don't think she trusts our motives for travelling to the island. But, she didn't withhold the ship. I don't want to look a gift horse in the mouth, but I'm a little suspicious she was so willing to part with the vessel to a group of strangers. We may have to watch the crew, or be ready for a scuffle when we return.
+
+With a ship secure and a day's work done, we found an empty spot in the city to settle into. I asked Connor if he'd be willing to duel me, and we shared a quick bout. I did not do well.
+
+Luisa and Connor both gave me a lecture about my poor performance, and offered to help teach me some basic punches and kicks. I'll keep training with them a while longer and see how much I'm able to pick up. I haven't been in a ton of situations so far on my journey where I've been without a weapon, but you never know. It'd be nice to learn the basics at least, and see if I can learn more from there with some training and excercise. Never really appealled to me in the past, but... I'd like every advantage I can get in a fight.
+
+It doesn't seem like Connor sleeps too much in the night. We took a quick break, but I think I'll keep training with him late into the night. Hopefully I'll learn something.
+
+-
+
+Addendum: Grem cursed herself with a magic bell while we were training. Seems like it makes her see spirits in the night, which threaten to drag her down to hell if she's alone. She's currently cowering in the corner, and we don't have much of an idea of what to do about it. Maybe this is something her patron can help her with? I think most curses have divine origins, so I don't see a lot of treatments besides keeping her company and making sure we travel by day. At least we can use the cigarettes to calm her nerves.
